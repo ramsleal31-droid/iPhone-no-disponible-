@@ -1,0 +1,2 @@
+# iPhone-no-disponible-
+resetear 
